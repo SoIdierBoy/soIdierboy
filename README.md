@@ -1,4 +1,6 @@
-<p align = center> <img width="500" height="296" alt="1000031648" src="https://github.com/user-attachments/assets/961d4199-f463-47d2-bcb4-b935f0c1aa4e" />
+![1000033505](https://github.com/user-attachments/assets/462d1927-7cf8-4d07-aa37-f7fd048b8952)
+
+
 
 <p align = center> <sub>⎯⎯⠀⠀“ You're on a mission. You get the job done. Okay? I stormed Normandy. I fought the Nazis.</sub> 
 
