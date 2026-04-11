@@ -1,11 +1,6 @@
-![1000033505](https://github.com/user-attachments/assets/462d1927-7cf8-4d07-aa37-f7fd048b8952)
+![1000033516](https://github.com/user-attachments/assets/cc99321d-144a-4f65-89b6-175ff0eb19db)
 
 
 
-<p align = center> <sub>⎯⎯⠀⠀“ You're on a mission. You get the job done. Okay? I stormed Normandy. I fought the Nazis.</sub> 
 
-<p align = center> <sub>You want to know what I do when I'm sad or scared?</sub>
-
-<p align = center> <sub>Fucking nothing.</sub> 
-
-<p align = center> <sub>'Cause I'm not a fucking pussy. „</sub>
+<p align = center> <sub> 𝓨ou are the 𝖿𝗅𝖾𝗌𝗁 the 𝗆𝖺𝗀𝗀𝗈𝗍𝗌 𝒂𝒅𝒐𝒓𝒆. 
